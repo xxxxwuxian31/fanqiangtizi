@@ -10,6 +10,10 @@
 | Pure梯子 | ⭐⭐⭐ | [Pure官方网址](https://billing.purevpn.com/aff.php?aff=42611&data1=gitwuxian31&data2=fanqiangtizi) | - | - |
 
 
+---
+
+### 国内最好的PC电脑梯子推荐，翻墙软件和科学上网推荐指南，最新稳定好用的翻墙VPN推荐，能用的VPN梯子不多了，以及对比VPS自建梯子、SSR机场、V2ray、蓝灯、老王VPN、WireGuard等翻墙软件和科学上网方法
+
 ![翻墙](http://img1.mydrivers.com/img/20170907/dffed70db7c041719614e3125128bd01.jpg)
 
 科学上网已经成为了日常工作和生活的一部分，而科学上网工具有很多，不管是VPN翻墙软件还是机场/梯子，都是为了绕过防火长城，帮助中国用户翻墙。接下来我们将介绍什么是科学上网，以及哪些翻墙VPN软件在中国最好用。
